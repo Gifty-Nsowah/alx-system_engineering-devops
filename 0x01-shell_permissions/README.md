@@ -1,1 +1,1 @@
-shell permissions
+Look in the mirror
